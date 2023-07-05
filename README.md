@@ -1,1 +1,0 @@
-# spedyme.github.io
